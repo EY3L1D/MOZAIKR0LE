@@ -22,3 +22,7 @@ this is fate as well
 ![gif_alt](https://github.com/EY3L1D/MOZAIKR0LE/blob/44c79f1be33cd0e14180e84f4873f95a037a931b/SH.gif)
 
 it will disappear , dissapear
+
+![gif_alr](https://github.com/EY3L1D/MOZAIKR0LE/blob/3c3779c6267c50f9dd57318c21001fa76e5e6ff0/MOZAIKROLE.gif)
+
+our word of love
