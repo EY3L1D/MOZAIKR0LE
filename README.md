@@ -26,3 +26,7 @@ it will disappear , dissapear
 ![gif_alr](https://github.com/EY3L1D/MOZAIKR0LE/blob/3c3779c6267c50f9dd57318c21001fa76e5e6ff0/MOZAIKROLE.gif)
 
 our word of love
+
+![gif_alt](https://github.com/EY3L1D/MOZAIKR0LE/blob/f46640882d04a1e50849d064b792bfbf816afda5/R.gif)
+
+モザイクロール (Reloaded)
