@@ -14,3 +14,7 @@ bound together
 ![gif_alt](https://github.com/EY3L1D/MOZAIKR0LE/blob/068492892eae81c246fa50779bb9e4f787c550e5/S.gif)
 
 so nobody can touch you
+
+![gif_alr](https://github.com/EY3L1D/MOZAIKR0LE/blob/ddbd9537e5e9248e4c9cccebc5f01eda13c84c4a/H.gif)
+
+this is fate as weell
