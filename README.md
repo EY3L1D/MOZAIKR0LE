@@ -7,4 +7,10 @@ even so , " I love you "
 
 what's wrong with me loving you ?
 
-![guf_alt](https://github.com/EY3L1D/MOZAIKR0LE/blob/a1be2eb60a847eced117316b29f1244f3b9f2339/I.gif)
+![gif_alt](https://github.com/EY3L1D/MOZAIKR0LE/blob/a1be2eb60a847eced117316b29f1244f3b9f2339/I.gif)
+bound together
+
+
+
+
+so nobody can touch you
