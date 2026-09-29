@@ -17,4 +17,8 @@ so nobody can touch you
 
 ![gif_alr](https://github.com/EY3L1D/MOZAIKR0LE/blob/ddbd9537e5e9248e4c9cccebc5f01eda13c84c4a/H.gif)
 
-this is fate as weell
+this is fate as well
+
+![gif_alt](https://github.com/EY3L1D/MOZAIKR0LE/blob/44c79f1be33cd0e14180e84f4873f95a037a931b/SH.gif)
+
+it will disappear , dissapear
